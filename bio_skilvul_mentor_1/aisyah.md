@@ -1,0 +1,1 @@
+halo aku lagi minggu ujian, doain ya fisika ku nilainya gak ukuran sepatu :')
