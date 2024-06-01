@@ -1,1 +1,1 @@
-halo doain nilai ujian fisikaku gak ukuran sepatu
+halo  semua, doain nilai ujian fisikaku gak ukuran sepatu
