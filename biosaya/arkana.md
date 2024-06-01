@@ -1,0 +1,1 @@
+Halo saya Arkana saya punya sepululuh kucing, saya menyayangi semua
