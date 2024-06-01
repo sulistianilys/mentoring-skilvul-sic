@@ -1,1 +1,1 @@
-Halo aku Farrell di mobile legend kerjaaannya ngefeed
+Halo aku Farrell di mobile legend kerjaaannya ngefeed.
